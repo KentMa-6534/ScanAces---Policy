@@ -1,4 +1,4 @@
-# Privacy Policy for ScanAces
+# Privacy Policy for ScanAces - Text Recognition
 
 **Last Updated: November 25, 2025**
 
